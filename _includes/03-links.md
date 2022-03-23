@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+You can checkout my profile at https://www.linkedin.com/in/nagumalli-sowmika-3a98641a6/
